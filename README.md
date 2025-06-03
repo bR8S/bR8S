@@ -1,7 +1,7 @@
-## Hey, I’m Guillermo 👋
+## hey im guillermo
 
-- 🎯 I translate visuals into working code—smooth, scalable, and true to design.
-- 💼 Currently freelancing – open to all sorts of client work 
-- 🎧 DJ / Producer | Always developing in rhythm
+- I translate visuals into working code—smooth, scalable, and true to design.
+- Currently freelancing – open to all sorts of client work 
+- DJ / Producer | Always developing in rhythm
 
-📫 Reach me at: memo.mata1994@gmail.com
+Reach me at: memo.mata1994@gmail.com
