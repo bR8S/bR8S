@@ -4,4 +4,4 @@
 - 🎯 Currently freelancing – open to all sorts of client work.
 - 🎨 I enjoy being creative: djing, producing, editing, etc.
 
-📬 Reach me at: memo.mata1994@gmail.com or [LinkedIn]([https://linkedin.com/in/your-linkedin](https://www.linkedin.com/in/guillermo-mata-ramirez/)) 
+📬 Reach me at: memo.mata1994@gmail.com or [LinkedIn]([https://linkedin.com/in/your-linkedin](https://www.linkedin.com/in/guillermo-mata-ramirez/)])
